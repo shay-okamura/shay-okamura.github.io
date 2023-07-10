@@ -1,1 +1,0 @@
-# shay-okamura.github.io
